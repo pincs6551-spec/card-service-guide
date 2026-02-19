@@ -15,4 +15,4 @@ For detailed instructions and a comparison of service fees, please visit our off
 👉 **[Apple Ticket Official Website](https://ticket-app1e.isweb.co.kr/)**
 
 ---
-*Real-time deposits available 24/7, 365 days a year! For urgent financial solutions, the verified [Apple Ticket](https://ticket-app1e.isweb.co.kr/) is your definitive answer.*
+*Real-time deposits available 24/7, 365 days a year! For urgent financial solutions, the verified [카드깡](https://ticket-app1e.isweb.co.kr/) is your definitive answer.*
