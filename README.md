@@ -17,5 +17,5 @@ For detailed instructions and a comparison of service fees, please visit our off
 ---
 *Real-time deposits available 24/7, 365 days a year! For urgent financial solutions, the verified [카드깡](https://ticket-app1e.isweb.co.kr/) is your definitive answer.*
 
-👉 Check Official Linktree (통합 안내 페이지)
+👉 **[Check Official Linktree (통합 안내 페이지)](https://linktr.ee/financeguide012)**
 
